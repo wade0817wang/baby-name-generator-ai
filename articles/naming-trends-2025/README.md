@@ -10,6 +10,8 @@ originalUrl: "https://babynamegeneratorai.net/blog/2025-naming-trends"
 
 # 2025 Baby Naming Trends: What's Popular and Why
 
+![2025 baby naming trends and popular choices](./images/2025-trends-header.jpg)
+
 The landscape of baby naming is constantly evolving, reflecting broader cultural shifts, media influences, and changing parental preferences. In 2025, we're seeing several fascinating trends emerge in how parents are choosing names for their newborns. This article explores the most significant naming patterns of the year and examines the factors driving these trends.
 
 ## Top Naming Trends of 2025
